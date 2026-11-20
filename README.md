@@ -20,3 +20,4 @@ I work in French and English; Turkish, Russian and German texts with careful tra
 - Bionluk: https://bionluk.com/darkaly
 - LinkedIn: https://www.linkedin.com/in/badara-ali-goita-a623502bb
 - Portfolio: https://ali-studyo.pages.dev/
+- Email: badarouss2020@gmail.com
